@@ -1,0 +1,3 @@
+Sri Guru mahatayya    Foundation was started in May 2022 by Sachin Vastrad and Dr Rachana Vastrad,  This foundation is mainly opened in fond memory of sachin's late father sri mahatayya vastrad amd his uncle late sri Gurulingayya Vastrad. 
+Inspired by the quote "Value of our Life is valued by how many lives we touch" objective is to extend our kind touch to as many as lives possible.   
+Objective is to touch i
